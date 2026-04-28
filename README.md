@@ -1,3 +1,7 @@
+An email marketing strategy for eCommerce helps you connect with customers through personalized offers, timely updates, and relevant content they actually care about.
+It turns casual browsers into repeat buyers by delivering the right message at the right moment.
+For more information, check out our page
+https://justwebinfotech.com/email-marketing-strategy-for-ecommerce/
 # Email & SMS Retention Skills — by Ground
 
 13 AI-powered retention workflows for DTC and ecommerce teams. Built for heads of lifecycle marketing, retention, and ecommerce.
